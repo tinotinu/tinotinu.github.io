@@ -1,1 +1,1 @@
-# tinotinu.github.io
+# [tinotinu](https://medium.com/@tinotinu)
